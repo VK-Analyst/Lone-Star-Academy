@@ -1,4 +1,6 @@
 # Lone-Star-Academy
 Hi,
 
-I have uploaded my Certificate in above files. 
+I have completed my Data Analyst Program and uploaded my Certificate in upload section.
+
+Thank you.
